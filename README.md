@@ -1,0 +1,102 @@
+# Mori Calliope – Make ’Em Afraid
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:04.65] What I want is at my fingers, yeah ah
+[00:07.76] What now?
+[00:08.48] Stop running
+[00:09.33] Ya know me as that chick who won't back down
+[00:11.85] I'm coming
+[00:12.69] The gun who threatens your empire
+[00:15.37] A fire
+[00:16.16] An urge to be bad
+[00:18.29] You can't expect to meet the angel that you had
+[00:21.33] Now!
+[00:22.12] The tables have turned, hah
+[00:23.81] The bridges I burned with desire (ah)
+[00:26.00] For human applause, plause
+[00:27.96] Rewind and relive and relay (relay)
+[00:28.97] All the 死 that I've wanted to say (to say)
+[00:30.57] I beckon you all to be part of, ah ah
+[00:33.95] (The making it known, my assent to the throne?)
+[00:35.13] Human kind's got secret lusts
+[00:38.04] A voice to take them higher
+[00:41.55] I got no delusions (delusions)
+[00:43.47] My own revolution (absolution)
+[00:45.36] Your misconstrued, myth come true
+[00:47.07] Come on! Make 'em afraid of ya
+[00:51.71] Hey
+[00:52.43] Na-na-na-na
+[00:57.40] Make 'em afraid of ya
+[00:59.24] Na-na-na-na-na-na-na-na-na-na-na
+[01:02.48] Na-na-na-na-na-na-na
+[01:04.24] Make 'em afraid of ya
+[01:05.95] Guess I'm the queen of fools!
+[01:07.68] (Ah) they see what they wanna, no duh
+[01:09.36] Said to myself "no losing"
+[01:11.12] "Make 'em afraid of ya"
+[01:12.76] Ready to break some rules
+[01:14.59] (Ah) an evil ya can't help but love
+[01:16.24] If you got the stuff to prove it
+[01:17.92] Make 'em afraid of ya
+[01:20.44] Ta-ta-ta-ta-da, yeah ah
+[01:23.12] Too far? (Ah)
+[01:24.60] I'm outta my mind (ah)
+[01:26.24] Chase the night
+[01:26.99] Slay the light
+[01:27.83] Feel the animal seeking a bite
+[01:29.92] Bare my teeth cry out as I clench through the pain
+[01:33.19] Yeah, nay-sayers want nothing to change
+[01:34.95] And their prayers are 邪邪魔魔! (Whoa)
+[01:36.67] So what?
+[01:38.07] Ya think I'm no good?
+[01:39.68] Don't act like gods should?
+[01:41.55] The joke's on you, the sky's their limit!
+[01:43.63] Disguise my ambitions
+[01:45.40] Make my own decisions
+[01:47.04] Defiant, on the brink watch their kingdom start to fall
+[01:50.48] Human kind's got secret lusts
+[01:53.67] A voice to take them higher
+[01:56.99] I'm ready and willin' (I'm willin')
+[01:58.71] So make me your villain (villain, villain)
+[02:00.84] Your misconstrued, myth come true
+[02:02.51] Come on! Make 'em afraid of ya
+[02:07.12] Hey
+[02:10.67] Na-na-na-na
+[02:12.80] Make 'em afraid of ya
+[02:14.60] Na-na-na-na-na-na-na-na-na-na-na
+[02:17.87] Na-na-na-na-na-na-na
+[02:19.59] Make 'em afraid of ya
+[02:21.35] Guess I'm the queen of fools!
+[02:23.03] (Ah) they see what they wanna, no duh
+[02:24.79] Said to myself "no losing"
+[02:26.52] "Make 'em afraid of ya"
+[02:28.24] Ready to break some rules
+[02:29.92] (Ah) an evil ya can't help but love
+[02:31.51] If you got the stuff to prove it
+[02:33.35] Make 'em afraid of ya
+[02:37.59] Yeah, yeah, ha
+[02:41.99] Goodbye (ah)
+[02:43.59] To life on the cautious side (ah)
+[02:47.04] I'll watch as it burns down
+[02:48.75] I got no delusions (delusions)
+[02:50.28] My own revolution (absolution)
+[02:52.27] Your misconstrued, myth come true
+[02:53.99] Come on! Make 'em afraid of ya
+[02:58.60] Hey (na-na-na-na-na-na-na-na-na-na-na)
+[03:02.46] Na-na-na-na, no
+[03:04.27] Make 'em afraid of ya
+[03:05.99] Na-na-na-na-na-na-na-na-na-na-na (oh, yeah yeah)
+[03:09.36] Na-na-na-na-na-na-na
+[03:10.89] Make 'em afraid of ya
+[03:12.75] Guess I'm the queen of fools!
+[03:14.43] (Ah) they see what they wanna, no duh
+[03:16.23] Said to myself "no losing"
+[03:17.95] "Make 'em afraid of ya"
+[03:19.67] ready to break some rules
+[03:21.39] (Ah) an evil ya can't help but love
+[03:23.11] If you got the stuff to prove it
+[03:24.83] Make 'em afraid of ya
+[03:27.04] Make 'em afraid of ya
+```
